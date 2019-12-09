@@ -6,7 +6,7 @@
  - **Attends BHS:** Class of 2021
  - **Grade:** 11th
 
- ![Kevin from the Office](./me.jpg)
+ ![Kevin from the Office](./9m58.gif)
 
  (Not me but the name fits)
 
